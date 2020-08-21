@@ -1,3 +1,3 @@
 # devian-art
 DevianArt submissions 
-https://soundcloud.com/fpfaffendorf
+https://www.deviantart.com/fpfaffendorf
